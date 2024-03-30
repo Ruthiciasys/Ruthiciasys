@@ -27,17 +27,17 @@
 |<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/rt57n2FOfNSpFNVOu1/source.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |               🌙                |
 | :-------------: | :-------------: | :-------------: |
 
-<blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
+<br><blockquote><i>And, won't you please spare me some decency?.</i></blockquote></br>
 
 |<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/source.gif" width="65"></a>|               𝔐𝔞𝔭𝔩𝔢 𝔎                |               🏛                |
 | :-------------: | :-------------: | :-------------: |
 
-<blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
+<br><blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote></br>
 
 |<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/4GIg6l0sq8ezKSfMes/giphy.gif" width="65"></a>|            𝔑𝔦𝔠𝔬/ℨ𝔥𝔬𝔫𝔤𝔩𝔦            |            🍵/🔶             |
 | :-------------: | :-------------: | :-------------: |
 
-<blockquote><i>'Cause I know that we fall apart, when nothing's new. Nothing's new</i></blockquote>
+<br><blockquote><i>'Cause I know that we fall apart, when nothing's new. Nothing's new</i></blockquote></br>
 <!---
 Ruthiciasys/Ruthiciasys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
