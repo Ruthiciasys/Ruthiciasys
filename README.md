@@ -6,7 +6,7 @@
 
 <div align="center">
   
-  <a href="https://ruthiciasys.carrd.co/"><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExc3dycDhqZmF4dDNjZG90Mzh6OHAzbXNjMjZkcTQzOGRqb25pOGI2ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ROgOCwvQTfT5bBjB8X/giphy.gif" width="765"></a>
+  <a href="https://ruthiciasys.carrd.co/"><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExc3dycDhqZmF4dDNjZG90Mzh6OHAzbXNjMjZkcTQzOGRqb25pOGI2ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ROgOCwvQTfT5bBjB8X/giphy.gif" width="665"></a>
 
  <h2> 𝒢𝑒𝓃𝓈𝒽𝒾𝓃 𝒞𝑜𝓂𝒻𝑜𝓇𝓉𝓈: </h2>
 
