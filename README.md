@@ -10,9 +10,9 @@
 
 <h4>
   
-  |       <a href="https://ruthiciasys.carrd.co/"><img src="https://cdn.discordapp.com/attachments/1220590504765296731/1223554940115357757/tgxz5ntp3wbdcdkhzqusivtms.jpg?ex=661a4756&is=6607d256&hm=a0e53beb45ba356bc0334f613f3e74d4e8c8f767f3bc5230a1b7dbb52076401a&" width="120"></a>       |       <a href="https://ruthiciasys.carrd.co/"><img src="https://cdn.discordapp.com/attachments/1220590504765296731/1223554939759099995/1c376238ef8ae8ab4e123fc0a22854fa.jpg?ex=661a4756&is=6607d256&hm=10f43868af9f47fa3f4943029bc4dfe76d3f4c986886137640c17bd0e6f2ab43&" width="120"></a>       | 
-  |:---:|:---:|
-  |<a href="https://ruthiciasys.carrd.co/">Ruthicia BYI Carrd</a>|<a href="https://maple-k.carrd.co/">Maple K's Carrd</a>|
+<a href="https://ruthiciasys.carrd.co/">Ruthicia BYI Carrd</a>
+※
+<a href="https://maple-k.carrd.co/">Maple K's Carrd</a>|
   
 </h4>
 
