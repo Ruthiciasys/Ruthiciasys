@@ -12,7 +12,7 @@
   
 <a href="https://ruthiciasys.carrd.co/">Ruthicia BYI Carrd</a>
 ※
-<a href="https://maple-k.carrd.co/">Maple K's Carrd</a>|
+<a href="https://maple-k.carrd.co/">Maple K's Carrd</a>
   
 </h4>
 
