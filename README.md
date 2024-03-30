@@ -1,12 +1,18 @@
 <div align="center">
   
-<h1><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMnEzbnJzd2Nvd210bnI4eXU4YmY0ZmM0dTFvMDlrN3gyNXVnb2d1YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/AlyTktm4S5XtX8N0KJ/source.gif" width="35"> <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2lwZGduY2lldWUyanhraTUxYjAxbHI1OHB4ZjVuM3dtNW9qZGZlYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/WmwsywcnaPCwlHNfQe/source.gif" width="35"><a href="https://ruthiciasys.carrd.co/"> 𝖂𝖊𝖑𝖈𝖔𝖒𝖊 𝖙𝖔 𝕷𝖆𝖓𝖉 𝖔𝖋 𝕽𝖚𝖙𝖍𝖎𝖈𝖎𝖆!!</a><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2lwZGduY2lldWUyanhraTUxYjAxbHI1OHB4ZjVuM3dtNW9qZGZlYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/WmwsywcnaPCwlHNfQe/source.gif" width="35"> <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMnEzbnJzd2Nvd210bnI4eXU4YmY0ZmM0dTFvMDlrN3gyNXVnb2d1YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/AlyTktm4S5XtX8N0KJ/source.gif" width="35"></h1>
-  
+<h1><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMnEzbnJzd2Nvd210bnI4eXU4YmY0ZmM0dTFvMDlrN3gyNXVnb2d1YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/AlyTktm4S5XtX8N0KJ/source.gif" width="35"> <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2lwZGduY2lldWUyanhraTUxYjAxbHI1OHB4ZjVuM3dtNW9qZGZlYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/WmwsywcnaPCwlHNfQe/source.gif" width="35"> 𝖂𝖊𝖑𝖈𝖔𝖒𝖊 𝖙𝖔 𝕷𝖆𝖓𝖉 𝖔𝖋 𝕽𝖚𝖙𝖍𝖎𝖈𝖎𝖆!!<img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExM2lwZGduY2lldWUyanhraTUxYjAxbHI1OHB4ZjVuM3dtNW9qZGZlYyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/WmwsywcnaPCwlHNfQe/source.gif" width="35"> <img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMnEzbnJzd2Nvd210bnI4eXU4YmY0ZmM0dTFvMDlrN3gyNXVnb2d1YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/AlyTktm4S5XtX8N0KJ/source.gif" width="35"></h1>
 </div>
 
+
 <div align="center">
-  
+
   <a href="https://ruthiciasys.carrd.co/"><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExc3dycDhqZmF4dDNjZG90Mzh6OHAzbXNjMjZkcTQzOGRqb25pOGI2ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ROgOCwvQTfT5bBjB8X/giphy.gif" width="665"></a>
+
+<h4 align="center">
+  <a href="https://ruthiciasys.carrd.co/">Ruthicia BYI Carrd</a></b>
+  •
+  <a href="https://maple-k.carrd.co/">Maple K's Carrd</a></b>
+</h4>
 
  <h2> 𝒢𝑒𝓃𝓈𝒽𝒾𝓃 𝒞𝑜𝓂𝒻𝑜𝓇𝓉𝓈: </h2>
 
