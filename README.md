@@ -13,7 +13,9 @@
 <a href="https://ruthiciasys.carrd.co/">Ruthicia BYI Carrd</a>
 ※
 <a href="https://maple-k.carrd.co/">Maple K's Carrd</a>
-  
+※
+<a href="https://rentry.co/ruthicia">Rentry</a>
+
 </h4>
 
  <h2> 𝒢𝑒𝓃𝓈𝒽𝒾𝓃 𝒞𝑜𝓂𝒻𝑜𝓇𝓉𝓈: </h2>
