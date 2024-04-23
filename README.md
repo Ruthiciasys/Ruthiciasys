@@ -6,7 +6,7 @@
 
 <div align="center">
 
-  <a href="https://ruthiciasys.carrd.co/"><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExc3dycDhqZmF4dDNjZG90Mzh6OHAzbXNjMjZkcTQzOGRqb25pOGI2ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ROgOCwvQTfT5bBjB8X/giphy.gif" width="665"></a>
+  <a href="https://www.google.com/url?sa=i&url=https%3A%2F%2Fc6jpg.tumblr.com%2Fpost%2F720618475750604800&psig=AOvVaw0mQVn6PytQsycYykUh9pWZ&ust=1713960346625000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCMD9iP6l2IUDFQAAAAAdAAAAABAE"><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExZnI1Z25hZjhmOWtnenoxOTdxajJ2NHphNG92MHlxNW82ejJkNjA4MiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/TLhXWPCue9oY45cYn2/source.gif"></a>
 
 <h4>
   
@@ -34,12 +34,12 @@
   <blockquote><i>So, won't you spare me indignity?.</i></blockquote>
 
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/rt57n2FOfNSpFNVOu1/source.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |               🌙                |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/source.gif" width="65"></a>|               𝔐𝔞𝔭𝔩𝔢 𝔎                |               🏛                |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/source.gif" width="65"></a>|               𝔐𝔞𝔭𝔩𝔢 𝔎                |               🏛                |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/rt57n2FOfNSpFNVOu1/source.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |               🌙                |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
