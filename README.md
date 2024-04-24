@@ -6,7 +6,7 @@
 
 <div align="center">
 
-  <a href="https://www.tumblr.com/genshingif/720617596632825856?source=share"><img src="https://cdn.discordapp.com/attachments/945927575937617941/1232335403051257946/tumblr_146571aef12ed4f79c9ae82b597ac158_af67a4b0_540.gif?ex=6629be07&is=66286c87&hm=a5c7c7d6105bedc8f63c5b1113476411fe1c9e833421077b7c6812c1583262f6&"></a>
+  <a href="https://www.tumblr.com/genshingif/720617596632825856?source=share"><img src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExdWJvaGx1aHh5eTZqMWI4OHJjOGNuMzQyODBqYjhyMDduMnlwamxhdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/6bLfjZd57gDw2z3aJo/giphy-downsized-large.gif"></a>
 
 <h4>
   
