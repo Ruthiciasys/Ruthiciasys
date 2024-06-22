@@ -23,7 +23,7 @@
 <table border="0" cellpadding="10" cellspacing="5" width="100"><tr>
 <td><a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/LBHRfcUKGB3nOJsmC7/giphy.gif" width="90"> </a></td>
 <td><a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/1IEDvLAcQZWXeA7XDy/giphy.gif" width="90"> </a></td>
-<td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/K8ygXEZpfBWfpgRK5o/source.gif" width="90"> </a> </td>
+<td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/4GIg6l0sq8ezKSfMes/giphy.gif" width="90"> </a> </td>
 <td><a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/yMLGvrk1VV0ZKdtbg9/source.gif" width="90"> </a></td>
 </tr></table>
   
@@ -44,7 +44,7 @@
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/4GIg6l0sq8ezKSfMes/giphy.gif" width="65"></a>|            𝔑𝔦𝔠𝔬/ℨ𝔥𝔬𝔫𝔤𝔩𝔦            |            🍵/🔶             |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/K8ygXEZpfBWfpgRK5o/source.gif" width="65"></a>|            𝔏𝔢𝔤𝔞𝔠𝔶/𝔄𝔠𝔢            |             👹               |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>'Cause I know that we fall apart, when nothing's new. Nothing's new</i></blockquote>
