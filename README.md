@@ -45,7 +45,7 @@
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/rt57n2FOfNSpFNVOu1/source.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |               🌙                |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/9efIkDLvqdWoStILIi/giphy.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |               🌙                |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
@@ -57,7 +57,9 @@
 
 |<a href="https://www.deviantart.com/doosio"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dgsavby-41e5e0d1-2f95-45f7-bef2-72c3f011731a.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGdzYXZieS00MWU1ZTBkMS0yZjk1LTQ1ZjctYmVmMi03MmMzZjAxMTczMWEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.09E7zI-hdWFCHL3Aar2i043-Ic9iuvdkc8tnndvRWFg" width="65"></a>|             瑞安/ℜ𝔶𝔫𝔫             |             <a><img src="https://i.imgur.com/qQfzOPD.png" width="20"></a>               |
 | :-------------: | :-------------: | :-------------: |
+
 <!---
+
 Ruthiciasys/Ruthiciasys is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
