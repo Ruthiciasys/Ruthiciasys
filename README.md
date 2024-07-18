@@ -6,9 +6,9 @@
 
 <div align="center">
 
-  <a href="https://www.pixiv.net/en/artworks/111426357"><img src="https://static.zerochan.net/Imbibitor.Lunae.full.4011122.jpg"></a>
+  <a href="https://www.pixiv.net/en/artworks/111426357"><img src="https://i.imgur.com/VGZeZMq.jpeg"></a>
 
-  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔳𝔬𝔦𝔡_0 𝔬𝔫 𝔓𝔦𝔵𝔦𝔳</code> 
+  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔞𝔫𝔫𝔞_𝔡𝔯𝔴01 𝔬𝔫 𝔗𝔴𝔦𝔱𝔱𝔢𝔯</code> 
 
 ***
 
@@ -47,12 +47,12 @@
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/9efIkDLvqdWoStILIi/giphy.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |               🌙                |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/sWuTzZQhRE4TrGpvD7/giphy.gif" width="65"></a>|                  ℭ𝔬𝔯𝔦𝔫                  |               🌙                |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/K8ygXEZpfBWfpgRK5o/source.gif" width="65"></a>|            𝔏𝔢𝔤𝔞𝔠𝔶/𝔄𝔠𝔢            |             👹               |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/9efIkDLvqdWoStILIi/giphy.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |             👹               |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>'Cause I know that we fall apart, when nothing's new. Nothing's new</i></blockquote>
