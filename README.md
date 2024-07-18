@@ -47,12 +47,12 @@
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/sWuTzZQhRE4TrGpvD7/giphy.gif" width="65"></a>|                  ℭ𝔬𝔯𝔦𝔫                  |               🌙                |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/sWuTzZQhRE4TrGpvD7/giphy.gif" width="65"></a>|                  ℭ𝔬𝔯𝔦𝔫                  |                🦈               |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/9efIkDLvqdWoStILIi/giphy.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |             👹               |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/9efIkDLvqdWoStILIi/giphy.gif" width="65"></a>|              ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢              |             🌙               |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>'Cause I know that we fall apart, when nothing's new. Nothing's new</i></blockquote>
