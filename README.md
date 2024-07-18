@@ -19,6 +19,8 @@
 <a href="https://maple-k.carrd.co/">Maple K's Carrd</a>
 ※
 <a href="https://rentry.co/ruthicia">Rentry</a>
+※
+<a href="https://artfight.net/~Suzume_Panda">Art Fight</a>
 
 ***
 
