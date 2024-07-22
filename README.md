@@ -42,12 +42,12 @@
   <blockquote><i>So, won't you spare me indignity?.</i></blockquote>
 
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/source.gif" width="65"></a>|               𝔎/𝔎𝔞𝔳𝔢𝔥                |               🏛                |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/source.gif" width="65"></a>|            𝔎/𝔎𝔞𝔳𝔢𝔥              |                  🏛                  |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/sWuTzZQhRE4TrGpvD7/giphy.gif" width="65"></a>|                   ℭ𝔬𝔯𝔦𝔫                   |                🦈               |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/sWuTzZQhRE4TrGpvD7/giphy.gif" width="65"></a>|                ℭ𝔬𝔯𝔦𝔫                |                   🦈                  |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
