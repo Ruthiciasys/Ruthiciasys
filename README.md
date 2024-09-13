@@ -14,13 +14,13 @@
 
 <h4>
   
-<a href="https://ruthiciasys.carrd.co/">Ruthicia BYI Carrd</a>
+<a href="https://ruthiciasys.carrd.co/">Ruthicia BYI</a>
 ※
 <a href="https://maple-k.carrd.co/">Maple K's Carrd</a>
 ※
-<a href="https://rentry.co/ruthicia">Rentry</a>
+<a href="https://vita-et-mortem.carrd.co/">Aspen's Carrd</a>
 ※
-<a href="https://artfight.net/~Suzume_Panda">Art Fight</a>
+<a href="https://rentry.co/ruthicia">Rentry</a>
 
 ***
 
