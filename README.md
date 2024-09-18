@@ -26,11 +26,11 @@
 
 </h4>
 
- <h2> 𝒢𝑒𝓃𝓈𝒽𝒾𝓃 𝒞𝑜𝓂𝒻𝑜𝓇𝓉𝓈: </h2>
+ <h2> 𝒞𝑜𝓂𝒻𝑜𝓇𝓉 𝒞𝒽𝒶𝓇𝒶𝒸𝓉𝑒𝓇𝓈: </h2>
 
 <table border="0" cellpadding="10" cellspacing="5" width="100"><tr>
-<td><a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/LBHRfcUKGB3nOJsmC7/giphy.gif" width="90"> </a></td>
-<td><a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/1IEDvLAcQZWXeA7XDy/giphy.gif" width="90"> </a></td>
+<td><a href="https://x.com/sundaenui"><img src="https://media.tenor.com/GV6Op7354SgAAAAi/sunday-honkai-star-rail.gif" width="100"> </a></td>
+<td><a href=""><img src="https://media.tenor.com/yLNo8ymqYysAAAAi/jing-yuan-honkia-star-rail-jing-yuan.gif" width="95"> </a></td>
 <td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/4GIg6l0sq8ezKSfMes/giphy.gif" width="90"> </a> </td>
 <td><a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/yMLGvrk1VV0ZKdtbg9/source.gif" width="90"> </a></td>
 </tr></table>
@@ -42,12 +42,12 @@
   <blockquote><i>So, won't you spare me indignity?.</i></blockquote>
 
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/source.gif" width="65"></a>|            𝔎/𝔎𝔞𝔳𝔢𝔥              |                  🏛                  |
+|<a href=""><img src="https://media.tenor.com/cJQjMa91eUsAAAAi/aventurine-honkai-star-rail.gif" width="72"></a>|                𝔄𝔰𝔭𝔢𝔫                  |                   ♠                   |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/sWuTzZQhRE4TrGpvD7/giphy.gif" width="65"></a>|                ℭ𝔬𝔯𝔦𝔫                |                   🦈                  |
+|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/Rrpq9sUXy9d8s1UB9E/giphy.gif" width="70"></a>|            ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢            |                   🌙                  |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
