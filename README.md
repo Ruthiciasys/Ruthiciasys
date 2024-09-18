@@ -6,9 +6,9 @@
 
 <div align="center">
 
-  <a href="https://x.com/Daixunxun/status/1780453555066880432"><img src="https://i.imgur.com/P0hcBhU.jpeg"></a>
+  <a href="https://dichlorvos121.lofter.com/post/1ecac962_2bb7d7fe1"><img src="https://static.zerochan.net/Aventurine.full.4184605.png"></a>
 
-  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔇𝔞𝔦𝔵𝔲𝔫𝔵𝔲𝔫 𝔬𝔫 𝔗𝔴𝔦𝔱𝔱𝔢𝔯</code> 
+  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔇𝔦𝔠𝔥𝔩𝔬𝔯𝔳𝔬𝔰𝟏𝟐𝟏 𝔬𝔫 𝔗𝔴𝔦𝔱𝔱𝔢𝔯</code> 
 
 ***
 
