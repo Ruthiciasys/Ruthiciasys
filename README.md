@@ -6,9 +6,9 @@
 
 <div align="center">
 
-  <a href="https://www.pixiv.net/en/artworks/111426357"><img src="https://i.imgur.com/VGZeZMq.jpeg"></a>
+  <a href="https://x.com/Daixunxun/status/1780453555066880432"><img src="https://i.imgur.com/P0hcBhU.jpeg"></a>
 
-  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔞𝔫𝔫𝔞_𝔡𝔯𝔴01 𝔬𝔫 𝔗𝔴𝔦𝔱𝔱𝔢𝔯</code> 
+  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔇𝔞𝔦𝔵𝔲𝔫𝔵𝔲𝔫 𝔬𝔫 𝔗𝔴𝔦𝔱𝔱𝔢𝔯</code> 
 
 ***
 
