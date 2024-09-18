@@ -16,8 +16,6 @@
   
 <a href="https://ruthiciasys.carrd.co/">Ruthicia BYI</a>
 ※
-<a href="https://maple-k.carrd.co/">Maple K's Carrd</a>
-※
 <a href="https://vita-et-mortem.carrd.co/">Aspen's Carrd</a>
 ※
 <a href="https://rentry.co/ruthicia">Rentry</a>
