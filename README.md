@@ -18,6 +18,8 @@
 ※
 <a href="https://vita-et-mortem.carrd.co/">Aspen's Carrd</a>
 ※
+<a href="https://lange-dechu.carrd.co/">Rosie's Carrd</a>
+※
 <a href="https://rentry.co/ruthicia">Rentry</a>
 
 ***
