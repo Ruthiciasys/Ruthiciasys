@@ -6,9 +6,9 @@
 
 <div align="center">
 
-  <a href="https://dichlorvos121.lofter.com/post/1ecac962_2bb7d7fe1"><img src="https://static.zerochan.net/Aventurine.full.4184605.png"></a>
+  <a><img src="https://i.imgur.com/yph7g50.jpeg"></a>
 
-  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔇𝔦𝔠𝔥𝔩𝔬𝔯𝔳𝔬𝔰𝟏𝟐𝟏 𝔬𝔫 𝔗𝔴𝔦𝔱𝔱𝔢𝔯</code> 
+  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔬𝔶𝔞𝔨𝔬𝔯𝔬𝔡𝔢𝔰𝔲 𝔬𝔫 𝔗𝔴𝔦𝔱𝔱𝔢𝔯</code> 
 
 ***
 
@@ -31,8 +31,7 @@
 <table border="0" cellpadding="10" cellspacing="5" width="100"><tr>
 <td><a href="https://x.com/sundaenui"><img src="https://media.tenor.com/GV6Op7354SgAAAAi/sunday-honkai-star-rail.gif" width="100"> </a></td>
 <td><a href=""><img src="https://media.tenor.com/yLNo8ymqYysAAAAi/jing-yuan-honkia-star-rail-jing-yuan.gif" width="95"> </a></td>
-<td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/4GIg6l0sq8ezKSfMes/giphy.gif" width="90"> </a> </td>
-<td><a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/yMLGvrk1VV0ZKdtbg9/source.gif" width="90"> </a></td>
+<td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/LBHRfcUKGB3nOJsmC7/giphy.gif" width="90"> </a> </td>
 </tr></table>
   
   
@@ -52,6 +51,8 @@
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
 
+|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/giphy.gif" width="70"></a>|             𝔎𝔞𝔳𝔢𝔥/𝔎             |                   🏛                  |
+| :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>'Cause I know that we fall apart, when nothing's new. Nothing's new</i></blockquote>
 
