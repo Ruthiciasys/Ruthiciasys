@@ -6,7 +6,7 @@
 
 <div align="center">
 
-  <a><img src="https://64.media.tumblr.com/704dadf496bce071ac4d9b9fece33afe/b2f43d1a8ac50e34-71/s1280x1920/db5f0e070c01465f2f9bbff8d4ff33957738aade.jpg"></a>
+  <a><img src="https://64.media.tumblr.com/704dadf496bce071ac4d9b9fece33afe/b2f43d1a8ac50e34-71/s1280x1920/db5f0e070c01465f2f9bbff8d4ff33957738aade.jpg" width="720"></a>
 
   <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: ℭ𝔦𝔫𝔫𝔞𝔪𝔬𝔟𝔲𝔫𝔷 𝔬𝔫 ???</code> 
 
