@@ -16,8 +16,6 @@
   
 <a href="https://ruthiciasys.carrd.co/">Ruthicia BYI</a>
 ※
-<a href="https://vita-et-mortem.carrd.co/">Aspen's Carrd</a>
-※
 <a href="https://lange-dechu.carrd.co/">Rosie's Carrd</a>
 ※
 <a href="https://rentry.co/ruthicia">Rentry</a>
@@ -29,9 +27,10 @@
  <h2> 𝒞𝑜𝓂𝒻𝑜𝓇𝓉 𝒞𝒽𝒶𝓇𝒶𝒸𝓉𝑒𝓇𝓈: </h2>
 
 <table border="0" cellpadding="10" cellspacing="5" width="100"><tr>
-<td><a href="https://x.com/sundaenui"><img src="https://media.tenor.com/GV6Op7354SgAAAAi/sunday-honkai-star-rail.gif" width="100"> </a></td>
+
 <td><a href=""><img src="https://media.tenor.com/yLNo8ymqYysAAAAi/jing-yuan-honkia-star-rail-jing-yuan.gif" width="95"> </a></td>
 <td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/LBHRfcUKGB3nOJsmC7/giphy.gif" width="90"> </a> </td>
+<td><a href=""=><img src="https://media1.giphy.com/media/GlL0iLkL9paPtzxV0T/200w.webp" width="90"> </a></td>
 </tr></table>
   
   
@@ -40,18 +39,17 @@
   
   <blockquote><i>So, won't you spare me indignity?.</i></blockquote>
 
-
-|<a href=""><img src="https://media.tenor.com/cJQjMa91eUsAAAAi/aventurine-honkai-star-rail.gif" width="72"></a>|                𝔄𝔰𝔭𝔢𝔫                  |                   ♠                   |
+|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/Rrpq9sUXy9d8s1UB9E/giphy.gif" width="70"></a>|            ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢            |                   🌙                  |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/Rrpq9sUXy9d8s1UB9E/giphy.gif" width="70"></a>|            ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢            |                   🌙                  |
+|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/giphy.gif" width="70"></a>|             𝔎𝔞𝔳𝔢𝔥/𝔎             |                   🏛                  |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
 
-|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/giphy.gif" width="70"></a>|             𝔎𝔞𝔳𝔢𝔥/𝔎             |                   🏛                  |
+|<a href="https://www.deviantart.com/doosio"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dh2ovqa-62af7643-5a0e-4103-bee1-4514003ef9ea.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGgyb3ZxYS02MmFmNzY0My01YTBlLTQxMDMtYmVlMS00NTE0MDAzZWY5ZWEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.QmOU9lWv22paWxerRQRg5G3XjjrHhGfjcSFD08HybOM" width="72"></a>|                ℭ𝔬𝔯𝔦𝔫                  |                   🦈                   |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>'Cause I know that we fall apart, when nothing's new. Nothing's new</i></blockquote>
