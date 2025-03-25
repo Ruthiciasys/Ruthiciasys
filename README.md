@@ -28,7 +28,7 @@
 
 <table border="0" cellpadding="10" cellspacing="5" width="100"><tr>
 
-<td><a href=""><img src="https://media.tenor.com/yLNo8ymqYysAAAAi/jing-yuan-honkia-star-rail-jing-yuan.gif" width="95"> </a></td>
+<td><a href=""><img src="https://i.imgur.com/SG2dP5l.png" width="90"> </a></td>
 <td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/LBHRfcUKGB3nOJsmC7/giphy.gif" width="90"> </a> </td>
 <td><a href=""=><img src="https://media1.giphy.com/media/GlL0iLkL9paPtzxV0T/200w.webp" width="90"> </a></td>
 </tr></table>
