@@ -6,9 +6,9 @@
 
 <div align="center">
 
-  <a><img src="https://64.media.tumblr.com/626f628dee9a7a2b310b61719d638d43/649e5ceaae3986a5-81/s2048x3072/6ac50c362e44c52b35c7e52009ab45d353c52791.gifv"></a>
+  <a href="https://www.tumblr.com/sweetnusshoyo/768558162496372736?source=share"><img src="https://64.media.tumblr.com/626f628dee9a7a2b310b61719d638d43/649e5ceaae3986a5-81/s2048x3072/6ac50c362e44c52b35c7e52009ab45d353c52791.gifv"></a>
 
-  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: ℭ𝔦𝔫𝔫𝔞𝔪𝔬𝔟𝔲𝔫𝔷 𝔬𝔫 ???</code> 
+  <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: 𝔰𝔴𝔢𝔢𝔱𝔫𝔲𝔰𝔰𝔥𝔬𝔶𝔬 𝔬𝔫 𝔗𝔲𝔪𝔟𝔩𝔯</code> 
 
 ***
 
