@@ -6,7 +6,7 @@
 
 <div align="center">
 
-  <a><img src="https://64.media.tumblr.com/704dadf496bce071ac4d9b9fece33afe/b2f43d1a8ac50e34-71/s1280x1920/db5f0e070c01465f2f9bbff8d4ff33957738aade.jpg" width="720"></a>
+  <a><img src="https://64.media.tumblr.com/626f628dee9a7a2b310b61719d638d43/649e5ceaae3986a5-81/s2048x3072/6ac50c362e44c52b35c7e52009ab45d353c52791.gifv"></a>
 
   <code style="color : gray">𝔄𝔯𝔱 ℭ𝔯𝔢𝔡𝔦𝔱: ℭ𝔦𝔫𝔫𝔞𝔪𝔬𝔟𝔲𝔫𝔷 𝔬𝔫 ???</code> 
 
@@ -24,27 +24,18 @@
 
 </h4>
 
- <h2> 𝒞𝑜𝓂𝒻𝑜𝓇𝓉 𝒞𝒽𝒶𝓇𝒶𝒸𝓉𝑒𝓇𝓈: </h2>
-
-<table border="0" cellpadding="10" cellspacing="5" width="100"><tr>
-
-<td><a href=""><img src="https://i.imgur.com/SG2dP5l.png" width="90"> </a></td>
-<td><a href="https://www.deviantart.com/doosio"> <img src="https://media.giphy.com/media/LBHRfcUKGB3nOJsmC7/giphy.gif" width="90"> </a> </td>
-<td><a href=""=><img src="https://media1.giphy.com/media/GlL0iLkL9paPtzxV0T/200w.webp" width="90"> </a></td>
-</tr></table>
-  
   
  <h2> 𝔉𝔯𝔢𝔮𝔲𝔢𝔫𝔱 𝔉𝔯𝔬𝔫𝔱𝔦𝔫𝔤 𝔐𝔢𝔪𝔟𝔢𝔯𝔰: </h2>
 
   
   <blockquote><i>So, won't you spare me indignity?.</i></blockquote>
 
-|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/Rrpq9sUXy9d8s1UB9E/giphy.gif" width="70"></a>|            ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢            |                   🌙                  |
+|<a href="https://www.deviantart.com/doosio"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e15a9051-e20c-467a-8375-90dee1a91fc4/dhgsfcl-d156000c-e878-47fd-9b28-d1a776960537.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2UxNWE5MDUxLWUyMGMtNDY3YS04Mzc1LTkwZGVlMWE5MWZjNFwvZGhnc2ZjbC1kMTU2MDAwYy1lODc4LTQ3ZmQtOWIyOC1kMWE3NzY5NjA1MzcuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.3oIjBUkl8gOuG1dhLGapBgIx0lJs1OHVPmxJGJVg8uE" width="70"></a>|            ℜ𝔬𝔰𝔢𝔩𝔦𝔫𝔫𝔢            |                   🌙                  |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please spare me some decency?.</i></blockquote>
 
-|<a href="https://ko-fi.com/s/c5339d79b1"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/giphy.gif" width="70"></a>|             𝔎𝔞𝔳𝔢𝔥/𝔎             |                   🏛                  |
+|<a href="https://www.deviantart.com/doosio"><img src="https://media.giphy.com/media/xKGR1Z4odA5Cm1ZEOh/giphy.gif" width="70"></a>|             𝔎𝔞𝔳𝔢𝔥/𝔎             |                   🏛                  |
 | :-------------: | :-------------: | :-------------: |
 
 <blockquote><i>And, won't you please call it, if our time is through?.</i></blockquote>
