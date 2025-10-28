@@ -16,8 +16,6 @@
   
 <a href="https://ruthiciasys.carrd.co/">Ruthicia Carrd</a>
 ※
-<a href="https://lange-dechu.carrd.co/">Host's Carrd</a>
-※
 <a href="https://rentry.co/ruthicia">Rentry WIP</a>
 
 ***
