@@ -18,7 +18,7 @@
 ※
 <a href="https://rentry.co/ruthicia">Rentry WIP</a>
 ※
-<a href="https://szp-art.carrd.co/#">Gallery + Art Shop</a>
+<a href="https://szp-art.carrd.co/#">Gallery & Art Shop</a>
 
 ***
 
